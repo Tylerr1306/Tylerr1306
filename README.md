@@ -1,9 +1,9 @@
-😳 Baby, I'm Tylerr 😳
+😳 Baby, I'm Thai 😳
 ==============================================
 - 🌱 Secking: C++, Html, Css, JavaScript
 - 📫 You can contact me at: hthai1306@gmail.com
 - 😄 From: Ha Noi, 🇻🇳
-- ⚡ Game: Samp,blockgame,Arena of Valor...
+- ⚡ Game: Minecraft,Fo4
 
 ## 🧰 Languages: 🧰
 <p align="center">
